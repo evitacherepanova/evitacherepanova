@@ -17,8 +17,8 @@
 
 ## Связь со мной
 - Telegram: @evkalipt_6
-- Email: [твой email]@gmail.com
-- GitHub: EvitaCherepanova
+- Email: evita.che20@gmail.com
+- GitHub: EvitaCher
 
 ---
 
